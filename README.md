@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Gagan-batra
+- 👀 I’m interested in doing all kind of Analytics 
+- 🌱 I’m currently learning more in end to end analysis
+- 💞️ I’m looking to join an organization to collaborate on projects
+- 📫 Can reach me out on 7828825214, gaganbatraind@gmail.com
+- 😄 Pronouns: He/Him
